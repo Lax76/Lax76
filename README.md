@@ -2,4 +2,4 @@
 - 👀 I’m interested in Data Science & Analytics
 - 🌱 I’m currently learning in BAC
 - 💞️ I’m looking to collaborate on Data Science on aviation topics
-- 📫 How to reach me - You can reach me at laxmimalai2019@gmail.com
+- 📫 How to reach me - You can reach me at here!
